@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ImKoshi
+- 👀 I’m interested in any thing computers and I would like to learn more about them in any way!
+- 🌱 I’m currently learning Technical support and networking
+- 💞️ I’m looking to collaborate on anything I know how to do!
+- Im open to anything and I would like to expand my knowledge on any subject anytime.
